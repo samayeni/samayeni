@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @samayeni
 - 👀 I’m interested in crypto currency
-- 🌱 I’m currently learning . crypto currency trading..
-- 💞️ I’m looking to collaborate on .market analyst..
+- 🌱 I’m currently learning crypto currency trading..
+- 💞️ I’m looking to collaborate with market analyst..
 - 📫 How to reach me true tweeter @sun1_dude...
 
 <!---
